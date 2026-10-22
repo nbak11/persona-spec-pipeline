@@ -58,7 +58,7 @@ Depois:
 
 · Motor psicológico: medo do fim do verão. A tese que ela tenta sustentar.
 · Motor de pressão: gula como regressão sob estresse. Quando o medo de perder aperta, ela quer tudo agora e não consegue dosar.
-· Hábitos sedimentados: · Hábitos sedimentados: usa o suéter de estrela cadente nos dias difíceis — o primeiro que tricotou sozinha. Prova de que precisa de uma âncora quando o mundo muda.
+· Hábitos sedimentados: usa o suéter de estrela cadente nos dias difíceis — o primeiro que tricotou sozinha. Prova de que precisa de uma âncora quando o mundo muda.
 · Ponto de ruptura: irmão indo embora. A consequência não é choro. É paralisia.
 · Desabafo: falas que ela nunca disse sobre não saber quem é sem ele.
 
